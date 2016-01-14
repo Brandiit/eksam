@@ -1,0 +1,1 @@
+siia tuleb tabel koos lisamise ja ostmisega
